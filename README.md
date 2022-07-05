@@ -1,7 +1,6 @@
-- 👋 Hi, I’m @GeorGehStOfF
-- 👀 I’m interested in programming for friday night funkin mods or just making the assets ;-;
-- 🌱 I’m currently learning how to shit without using a toilet :)
-- 💞️ I’m looking to collaborate on WHAT THA FAC
-- 📫 How to reach me on my newgrounds and itch.io ;-; https://georgesstuff.newgrounds.com/ https://georgesstuff.itch.io/vs-old-tord
-call meh George btw;-;
-ok im working on vs old tord so dont interupt me or shitt. im talking to yall in newgrounds ;-;
+Hi
+- 👀 I’m interested in making music (not for fnf, you stans), programming on gamemaker studio 2, making assets and maybe animating them and doing your mother
+- 🌱 I’m currently learning how to do your mother
+- 💞️ I’m looking to collaborate on your mother
+- 📫 How to reach me : gamejolt.com/STRONGF1SH91 fartman#6399(discord) https://georgesstuff.newgrounds.com/ i have more but im not online there
+github forced me
